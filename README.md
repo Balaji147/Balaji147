@@ -18,8 +18,8 @@
 
 ## 📫 Let's Connect
 
-- 📧 [Email](mailto:balajimanickavasagam98@gmail.com)
-[LinkedIn](https://www.linkedin.com/in/balajimanickavasagam)
+- 📧 [Email](mailto: mebala147@gmail.com)
+[LinkedIn](https://www.linkedin.com/in/balaji-manickavasagam-24172b219)
 
 
 <!---
